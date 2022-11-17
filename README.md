@@ -7,7 +7,6 @@
 - ⚡ Fun fact: When I finished high school, I want to be a Designer(Engineer).I like innovation and creativity, So in the future I want to be a desingner.
 
 **My Journey**
-- 
 - 🏫 I am study at Rohal High School(2019-2021) , at New Generation School Preah Sisowath(2021-now).
 - 🔭 
 
