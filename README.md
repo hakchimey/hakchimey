@@ -4,7 +4,7 @@
 - 🔎 I’m looking for mentor to help me in software engineering.
 - 💬 My favorite subject is Math chemistry and ICT.
 - 📫 How to reach me: **hak.chimey08@gmail.com**
-- ⚡ Fun fact: When I finished high school, I want to be a Designer(Engineer).I like innovation and creativity, So in the future I want to be a desingner.
+- ⚡ Fun fact: When I finished high school, I want to be a Designer(Engineer).So in the future I want to be a desingner.
 
 **My Journey**
 - 🏫 I am study at Rohal High School(2019-2021) , at New Generation School Preah Sisowath(2021-now).
