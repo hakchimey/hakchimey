@@ -2,9 +2,9 @@
 - 🏫 I’m a student at New Genaral School at Preash Sisowath High school.
 - 📒 I am doing more about learning: C++ , Cord.org , 3D printer.
 - 🔎 I’m looking for mentor to help me in software engineering.
-- 💬 My favorite subject is Math chemistry and ICT.
+- 💬 My favorite subject is chemistry and ICT.
 - 📫 How to reach me: **hak.chimey08@gmail.com**
-- ⚡ Fun fact: When I finished high school, I want to be a Designer(Engineer).So in the future I want to be a desingner.
+- ⚡ Fun fact: When I finished high school, I want to be a ....So in the future I want to be a ....
 
 **My Journey**
 - 🏫 I am study at Rohal High School(2019-2021) , at New Generation School Preah Sisowath(2021-now).
